@@ -1,4 +1,4 @@
-### Olá eu sou Jonas Santos e sou um desenvolvedor Full Stack em constante evolução 🤓📚
+### Olá eu sou Jonas Santos desenvolvedor Full Stack em constante evolução 🤓📚
 ****
 Conecte-se comigo e acompahe meu trabalho!
 
